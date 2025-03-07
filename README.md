@@ -9,8 +9,8 @@
 - I'm an artist with a BFA in Film Production, 3D illsutration is a hobby of mine, Art Direction is a skill of mine, and I'm making game dev a career of mine.
   Lets tell stories together!
 
-  Lighting Design: www.amanziconnexions.com
-  Portfolio: www.oknokn.com
+- Lighting Design: www.amanziconnexions.com
+- Portfolio: www.oknokn.com
 
 <!---
 Passopla/Passopla
