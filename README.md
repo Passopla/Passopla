@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on games, art projects, and apps
 - 📫 Reach me karl@amanziconnexions.com
 - 😄 Pronouns: He Him
-- ⚡ South African, In Canada
+- ⚡ South African, based in Canada sometimes.
 
 - I'm an artist with a BFA in Film Production, 3D illsutration is a hobby of mine, Art Direction is a skill of mine, and I'm making game dev a career of mine.
   Lets tell stories together!
