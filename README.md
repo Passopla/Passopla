@@ -7,7 +7,7 @@
 - ⚡ South African, studying in Canada.
 -  Currently freelancing on dev projects. 
 
-- I'm an artist with a BFA in Film Production, 3D illsutration is a hobby of mine, Art Direction is a skill of mine, and I'm making game development a career.
+- I'm aCreative developer with a BFA in Film Production, 3D illsutration is a hobby of mine, Art Direction is a skill of mine, and I'm making game development a career.
   Lets tell stories together!
 
 - Portfolio: www.oknokn.com
